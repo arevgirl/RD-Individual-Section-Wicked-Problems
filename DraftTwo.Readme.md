@@ -1,5 +1,7 @@
 # Defining Stress and Anxiety
 
+_By Abigail Elcock_
+
 In order to analyze the impacts of mental health on UVU students in a post-pandemic, digital classroom world, understanding mental health and its causes is critical. The uncertainty surrounding COVID-19 global shutdowns has increased anxiety. According to the Center for Disease Control and Prevention (CDC), “[Public health actions, such as social distancing, are necessary to reduce the spread of COVID-19, but they can make us feel isolated and lonely and can increase stress and anxiety.](https://www.cdc.gov/mentalhealth/stress-coping/cope-with-stress/index.html)” Therefore, the most relevant mental health experience to understand in present society is anxiety and stress. 
 
 Stress is generally defined as a reaction to pressure or a threat. Anxiety is a common, chronic mental health disorder with the ability to disrupt normal function in a person’s life.
