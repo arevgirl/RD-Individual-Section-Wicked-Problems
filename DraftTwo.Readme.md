@@ -22,7 +22,7 @@ Anxiety is usually internal and will be continually experienced even when trigge
 
 ## 2. Triggers
 
-Changes in one's environment or everyday responsibilites are often the root causes of stress. The level of stress experienced is proportional to the trigger's severity. Additionally, stress has the ability to build on top of itself. Therefore, the stress people experience is often a compilation of pressure from various triggers of different severity levels. This layered complexity makes stress relief an important practice for everyone to develop.
+Changes in one's environment or everyday responsibilities are often the root causes of stress. The level of stress experienced is proportional to the trigger's severity. Additionally, stress has the ability to build on top of itself. Therefore, the stress people experience is often a compilation of pressure from various triggers of different severity levels. This layered complexity makes stress relief an important practice for everyone to develop.
 
 While stress is proportional to the trigger, "[[a]nxiety [...] is longer lasting and can sometimes seem as if nothing is triggering it; often the feelings of fear or worry are disproportional to the actuality of the event or concern.](https://www.verywellhealth.com/stress-vs-anxiety-5194726)" Anxiety can either be triggered by an existing disorder or by prolonged stress. As such, anxiety triggers vary from person to person. Changes in lifestyle—such as a disruption of sleep patterns or a large intake of caffeine—can be anxiety-inducing. Other common sources of anxiety might include finances, public speaking, conflict, genetic predispositions, and more.
 
